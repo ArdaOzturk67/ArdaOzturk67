@@ -11,5 +11,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about chess
 - 📫 How to reach me: ardaoztrk@yahoo.com CS Student in Bilkent University
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: ...
--->
+
